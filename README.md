@@ -1,0 +1,1 @@
+# dasturiy-taminot-tizimlarilarni-loyhalsh1
